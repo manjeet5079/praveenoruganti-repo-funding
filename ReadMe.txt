@@ -7,5 +7,5 @@ Telegram Group: https://t.me/joinchat/I8rAVFfGj7TMz1kIWFDayQ
 GitHub: http://github.com/praveenoruganti
 
 Funding  ways
-Google Pay : praveenoruganti-1@okhdfcbank
+GooglePay: praveenoruganti-1@okhdfcbank
 Paypal: https://www.paypal.me/praveenoruganti1985
